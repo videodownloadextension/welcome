@@ -1,6 +1,6 @@
 # 信息
 
-https://colorink-top.github.io/welcome/thanks.html
+https://videodownloadextension.github.io/welcome/thanks.html
 
 # 提交
 
